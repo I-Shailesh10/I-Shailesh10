@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @I-Shailesh10
 - 👀 I’m interested in Learning
-- 🌱 I’m currently learning CS ( Computer Science 
+- 🌱 I’m currently learning CS ( Computer Science )
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me IG-Shaibeast10
 - 😄 Pronouns: HE/Him
